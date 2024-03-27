@@ -1,7 +1,7 @@
 # 💫About Me :
-✨Nguyen Cuu Phi Long.
-✨Live in Hue City.
-❄️I have sever discord here https://discord.gg/ZuUanG5h
+✨Nguyen Cuu Phi Long.                                                                                                                                                                                                                                              
+✨Live in Hue City.                                                                                                                                                                                                                                                    
+ ❄️I have sever discord here https://discord.gg/ZuUanG5h
 
 ## 🌐Socials
 [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/https://www.facebook.com/profile.php?id=100075340962756) 
